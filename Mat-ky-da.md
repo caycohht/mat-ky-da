@@ -6,7 +6,8 @@ Mật kỳ đà là mật của con kỳ đà. Theo kinh nghiệm nhân dân m�
 ### + Tác dụng chữa viêm phế quản tắc nghẽn
 ### + Tác dụng chữa khó thở, thở khò khè
 
-![alt](http://https://drive.google.com/file/d/1wPgeDgoAXDClfH010832W7La08Jtzmyn/view?usp=sharing)
+![alt](http://https://uploads-ssl.webflow.com/5f4c6e0c5cd6d9406c2680b1/5f4c735a7330e52705e9562e_mat-ky-da-loai-nho-1.jpg)
+
 ## Các tác dụng khác
 + Tác dụng chữa run tay chân
 + Tác dụng chữa trào ngược dạ dày, cái này ai hợp thì mới dùng được
